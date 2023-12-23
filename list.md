@@ -45,8 +45,8 @@ https://www.amazon.com/gp/product/B01ENFOHN8/ref=ox_sc_act_title_1?smid=ATVPDKIK
 
 
 
-Ph stabilizer 
+## Ph stabilizer 
 https://www.amazon.com/Atlas-Scientific-Down-250ml-8oz/dp/B00P1MQWK4/ref=sr_1_9?crid=JOBZKQFVT3AP&keywords=ph+balance+for+water+plants&qid=1703357303&s=industrial&sprefix=ph+balance+for+water+plants%2Cindustrial%2C96&sr=1-9
 
 
-Fertilizer
+## Fertilizer
